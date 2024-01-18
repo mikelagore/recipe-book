@@ -113,3 +113,46 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### My Recipe
+
+Ingredients:
+- 4 large eggs
+- 1 cup fresh spinach, chopped
+- 1/4 cup feta cheese, crumbled
+- 2 tablespoons milk
+- Salt and pepper to taste
+- 2 tablespoons butter or cooking oil
+
+Instructions:
+- Prep Ingredients:
+
+- Crack the eggs into a bowl, add milk, and beat them together until well combined.
+- Chop the fresh spinach.
+- rumble the feta cheese.
+- Cook Spinach:
+
+- Heat 1 tablespoon of butter or oil in a non-stick skillet over medium heat.
+- Add the chopped spinach to the skillet and sauté until it wilts, about 2-3 minutes.
+- Scramble Eggs:
+
+- Push the sautéed spinach to one side of the skillet.
+- Pour the beaten eggs into the empty side of the skillet.
+- Allow the eggs to set slightly at the edges, and then gently stir with a spatula.
+- Add Feta:
+
+- Once the eggs are mostly set but still slightly runny, sprinkle the crumbled feta cheese over the eggs.
+- Finish Cooking:
+
+- Continue to cook the eggs, stirring gently, until they are fully cooked but still moist.
+- Season with salt and pepper to taste.
+
+Serve:
+- Remove the skillet from heat.
+- Spoon the scrambled eggs with spinach and feta onto plates or into bowls.
+
+Optional Garnish:
+- Garnish with additional feta cheese or a sprinkle of fresh herbs, if desired.
+
+- Serve the scrambled eggs with your favorite toast, English muffins, or a side of fresh fruit.
